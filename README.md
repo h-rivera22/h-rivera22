@@ -1,6 +1,22 @@
 # SASAKI TO MINATO
 
-![Image](h-rivera22/Screenshot 2022-04-02 084404.png)
+![Screenshot 2022-04-02 084404](https://user-images.githubusercontent.com/102715509/161359828-91ad4bb8-c93b-4fea-ab54-0a15156c0279.png)
+
+`Miyano spends his days peacefully reading Boys' Love comics and worrying about how girly his face is-until a chance encounter leads to a scuffle with his senior Sasaki. Intrigued by his feisty junior Miyano, delinquent Sasaki uses every opportunity he can to get closer...`
+
+`Genre: School, Shounen Ai, Slice of Life`
+
+`Released: 2022`
+
+`Status: Ongoing`
+
+`Episodes: 12`
+
+`Other name: Sasaki and Miyano, 佐々木と宮野`
+
+## **CHARACTERS**
+
+
 
 You can use the [editor on GitHub](https://github.com/h-rivera22/h-rivera22/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
 
