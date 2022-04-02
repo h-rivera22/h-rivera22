@@ -20,6 +20,7 @@
 ### MIYANO TOSHIKAZU
 
 
+![446029](https://user-images.githubusercontent.com/102715509/161361392-7e5e87a2-9f5e-40bf-87f9-51879b02e06f.jpg)
 
 
 ##### NAME: MIYANO TOSHIKAZU
@@ -87,44 +88,29 @@ His power level is 34.
 
 ### SASAKI SHUUMEI
 
-![48f1d7bfd3b84030e6987dba1a301cc4](https://user-images.githubusercontent.com/102715509/161360930-f8594b54-5df4-4eb5-a192-72fe9a344f56.jpg)
 
 
 
 
 
-You can use the [editor on GitHub](https://github.com/h-rivera22/h-rivera22/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+##### NAME: SASAKI SHUUMEI
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+##### ALIASES: Mya-chan, Yoshi-kun Miyano
 
-### Markdown
+##### AGE:
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+##### BIRTHDAY: FEBRUARY 22
 
-```markdown
-Syntax highlighted code block
+##### CLASSES: 1-B,2-B
 
-# Header 1
-## Header 2
-### Header 3
+##### CLUB: Disciplinary Committee
 
-- Bulleted
-- List
+##### HEIGHT: 160CM-169CM
 
-1. Numbered
-2. List
+##### EYE COLOR: BROWN
 
-**Bold** and _Italic_ and `Code` text
+##### HAIR COLOR: BLACK
 
-[Link](url) and ![Image](src)
-```
+##### BLOOD TYPE: B
 
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/h-rivera22/h-rivera22/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+##### RELATIONSHIPS:   
