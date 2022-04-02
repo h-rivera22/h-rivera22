@@ -1,19 +1,19 @@
 # SASAKI TO MINATO
 
 
-![download](https://user-images.githubusercontent.com/102715509/161361054-3ad20ce0-4d35-4392-83db-8fbbfde62cc7.jpg)
+![Untitled design (2)](https://user-images.githubusercontent.com/102715509/161361169-bd0f243b-0b3c-4eeb-bbb4-23b2e1d70d1d.png)
 
-`Miyano spends his days peacefully reading Boys' Love comics and worrying about how girly his face is-until a chance encounter leads to a scuffle with his senior Sasaki. Intrigued by his feisty junior Miyano, delinquent Sasaki uses every opportunity he can to get closer...`
+#### **Miyano spends his days peacefully reading Boys' Love comics and worrying about how girly his face is-until a chance encounter leads to a scuffle with his senior Sasaki. Intrigued by his feisty junior Miyano, delinquent Sasaki uses every opportunity he can to get closer...**
 
-`Genre: School, Shounen Ai, Slice of Life`
+**Genre: School, Shounen Ai, Slice of Life**
 
-`Released: 2022`
+**Released: 2022**
 
-`Status: Ongoing`
+**Status: Ongoing**
 
-`Episodes: 12`
+**Episodes: 12**
 
-`Other name: Sasaki and Miyano, 佐々木と宮野`
+**Other name: Sasaki and Miyano, 佐々木と宮野**
 
 ## **CHARACTERS**
 
