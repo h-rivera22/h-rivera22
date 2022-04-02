@@ -15,7 +15,7 @@
 
 ### FAVORITE ALBUMS
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/album/558tpdCejjVQNFAumRAeQj?utm_source=generator" width="100%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
+![images (3)](https://user-images.githubusercontent.com/102715509/161380447-d9195cec-dffa-462c-a4d2-64a28590882d.jpg)(
 
 ### RECOM
 
