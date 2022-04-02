@@ -18,7 +18,9 @@
 ## **CHARACTERS**
 
 ### MIYANO TOSHIKAZU
-![446029](https://user-images.githubusercontent.com/102715509/161360075-757e1a14-9ced-421a-b774-851a56039759.jpg)
+
+
+
 
 ##### NAME: MIYANO TOSHIKAZU
 
