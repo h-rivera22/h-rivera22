@@ -84,6 +84,7 @@ His power level is 34.
 
 ### SASAKI SHUUMEI
 
+![48f1d7bfd3b84030e6987dba1a301cc4](https://user-images.githubusercontent.com/102715509/161360930-f8594b54-5df4-4eb5-a192-72fe9a344f56.jpg)
 
 
 
