@@ -1,7 +1,7 @@
 # SASAKI TO MINATO
 
 
-![download](https://user-images.githubusercontent.com/102715509/161361018-de6edc63-db51-4545-8280-253d6e21ea0a.jpg)
+![download](https://user-images.githubusercontent.com/102715509/161361054-3ad20ce0-4d35-4392-83db-8fbbfde62cc7.jpg)
 
 `Miyano spends his days peacefully reading Boys' Love comics and worrying about how girly his face is-until a chance encounter leads to a scuffle with his senior Sasaki. Intrigued by his feisty junior Miyano, delinquent Sasaki uses every opportunity he can to get closer...`
 
