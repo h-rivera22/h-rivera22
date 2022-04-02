@@ -1,7 +1,7 @@
 # HK_ROOM 
 
-### STUDY
 
+## STUDY
 
 **SCHEDULE**
 
@@ -130,17 +130,86 @@ I may be a clever student when it comes to my studies, but I never forget about 
 **0:00-1:53= OUTRO: DAY 2**
 
 
-# THERE ARE MORE GROUPS I WISH TO PUT IT HERE BUT I LACK TIME HERE THE LINK TO SOME GROUP I LIKE
+**THERE ARE MORE GROUPS I WISH TO PUT IT HERE BUT I LACK TIME HERE THE LINK TO SOME GROUP I LIKE**
 
 # STRAY KIDS 
 
-## SPOTIFY: https://open.spotify.com/artist/2dIgFjalVxs4ThymZ67YCE
+![8 Crackheads • SKZ](https://user-images.githubusercontent.com/102715509/161385371-9adfe489-b654-4ee8-9b04-c7529c4b5a5d.jpg)
 
-## YOUTUBE: https://www.youtube.com/c/StrayKids
+**Stray Kids (Korean: 스트레이 키즈; RR: Seuteurei kijeu; often abbreviated as SKZ) is a South Korean boy band formed by JYP Entertainment through the 2017 reality show of the same name. The group is composed of eight members: Bang Chan, Lee Know, Changbin, Hyunjin, Han, Felix, Seungmin, and I.N. Originally a nine-piece group, member Woojin left due to undisclosed personal reasons in October 2019. Stray Kids released their pre-debut extended play (EP) Mixtape in January 2018 and officially debuted on March 25 with the EP I Am Not.**
 
-## INSTAGRAM: https://www.instagram.com/realstraykids/?hl=en
+### SPOTIFY: https://open.spotify.com/artist/2dIgFjalVxs4ThymZ67YCE
 
-## TWITTER: https://twitter.com/Stray_Kids?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor
+### YOUTUBE: https://www.youtube.com/c/StrayKids
 
-## TIKTOK: https://www.tiktok.com/@jypestraykids?lang=en
+### INSTAGRAM: https://www.instagram.com/realstraykids/?hl=en
 
+### TWITTER: https://twitter.com/Stray_Kids?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor
+
+### TIKTOK: https://www.tiktok.com/@jypestraykids?lang=en
+
+
+# TOMORROW X TOGETHER (TXT)
+
+![txt](https://user-images.githubusercontent.com/102715509/161385463-c3f54967-4159-4c02-a9a1-5a63a53d83ea.jpg)
+
+TXT (투모로우바이투게더), also known as TOMORROW X TOGETHER, is a 5-member boy group formed by Big Hit Music (part of HYBE Labels). The group consists of: Yeonjun, Soobin, Beomgyu, Taehyun and Huening Kai. They debuted on March 4th, 2019 with their first mini-album 'The Dream Chapter: STAR'.
+
+### SPOTIFY: https://open.spotify.com/artist/0ghlgldX5Dd6720Q3qFyQB
+
+### YOUTUBE: https://www.youtube.com/c/TXT_bighit
+
+### INSTAGRAM: https://www.instagram.com/txt_bighit/
+
+### TWITTER: https://twitter.com/TXT_bighit
+
+### TIKTOK: https://www.tiktok.com/@txt.bighitent?lang=en
+
+# SEVENTEEN
+
+![SEVENTEEN](https://user-images.githubusercontent.com/102715509/161385768-c16b10f7-c645-4493-a7cf-158d6b991257.jpg)
+
+**SEVENTEEN (세븐틴) is a 13-member boy group under Pledis Entertainment. They officially debuted on May 26, 2015 with the mini album 17 Carat. The group is made up of three units: hip-hop, vocal, and performance.**
+
+### SPOTIFY: https://open.spotify.com/artist/7nqOGRxlXj7N2JYbgNEjYH?si=MUMw2H3pRL-QcYr9EY6OoA
+
+### YOUTUBE: https://www.youtube.com/user/pledis17
+
+### INSTAGRAM: https://www.instagram.com/saythename_17/
+
+### TWITTER: https://twitter.com/pledis_17?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor
+
+### TIKTOK: https://www.tiktok.com/@seventeen17_official?lang=en
+
+
+## Besides listening to their songs, I also watch anime.
+You may watch it too. It's 100% recommended.
+some of them are still ongoing but you can read the manga
+
+1. HAIKYUU
+2. BOKU NO HERO ACADEMIA
+3. ATTACK ON TITAN
+4. DEMON SLAYER
+5. FREE
+6. TOKYO REVENGERS
+7. YOUR NAME (MOVIE)
+8. YURI ON ICE
+9. NEVER PROMISE LAND
+10. YOUR LIE IN APRIL
+11. RE-MAIN
+12. HORIMIYA
+13. BAKUTEN
+14. WATAKOI
+15. JUJUTSU KAISEN
+16. GAKUEN BABYSISTER
+17. GIVEN
+18. KAKEGURUI
+19. SASAKI TO MIYANO
+20. KOI TO YOBU NI WA KIMOCHI WARUI
+21. KOROSHI AI
+22. SONO BISQUE DOLL WA KOI WO SURU
+23. FRUIT BASKET
+24. SUMMER GHOST
+25. HELLO WORLD (MOVIE)
+26. AO HARU RIDE
+27. 
