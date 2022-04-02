@@ -1,40 +1,22 @@
-# HK_ROOM 
+# ENHYPEN
 
-## NAME: HANNAH KELLY R. RIVERA 
+"1-2! CONNECT! HELLO! WE ARE ENHYPEN"
 
-## AGE: 15
-
-
-### STUDY
-
-**SCHEDULE**
-
-![Screenshot 2022-03-31 172734](https://user-images.githubusercontent.com/102715509/161379733-d2a40260-dd47-49d9-91cb-a4480f1e5902.png)
-
-I may be a clever student when it comes to my studies, but I never forget about my hobbies, the things I like. Like songs, especially K-POP
-
-### PLAYLIST
-
-https://open.spotify.com/playlist/5g9COjrjPZD95bXvbr4dy3
-
-
-
-## FAVORITE KPOP BOY GROUPS
 ![Enhypen](https://user-images.githubusercontent.com/102715509/161380761-8082f78d-87d2-46df-a7a5-169af0734730.jpg)
 
 ####  **ENHYPEN is a mix of an en dash and a hyphen that connects different words to create new meaning, members of ENHYPEN will connect, discover each other, and grow together. ENHYPEN debuted on November 30th, 2020 with their mini-album “BORDER: DAY ONE” and title track “Given-Taken”.**
 
 ####  **Enhypen has seven members, which are Jungwon, their leader, Heeseung, the oldest, Jay, Jake, Sunghoon, Sunoo, and Ni-ki, the youngest.**
 
-### SPOTIFY: https://open.spotify.com/artist/5t5FqBwTcgKTaWmfEbwQY9
+ SPOTIFY: https://open.spotify.com/artist/5t5FqBwTcgKTaWmfEbwQY9
 
-### YOUTUBE: https://www.youtube.com/c/ENHYPENOFFICIAL
+ YOUTUBE: https://www.youtube.com/c/ENHYPENOFFICIAL
 
-### TWITTER:  https://twitter.com/enhypen
+ TWITTER:  https://twitter.com/enhypen
 
-### INSTAGRAM: https://www.instagram.com/enhypen/?hl=en
+ INSTAGRAM: https://www.instagram.com/enhypen/?hl=en
 
-### TIKTOK: https://www.tiktok.com/@enhypen?lang=en
+ TIKTOK: https://www.tiktok.com/@enhypen?lang=en
  
 ## ALBUMS
 
@@ -134,87 +116,66 @@ https://open.spotify.com/playlist/5g9COjrjPZD95bXvbr4dy3
 **0:00-1:53= OUTRO: DAY 2**
 
 
-**THERE ARE MORE GROUPS I WISH TO PUT IT HERE BUT I LACK TIME HERE THE LINK TO SOME GROUP I LIKE**
+## GALLERY
 
-# STRAY KIDS 
-
-![8 Crackheads • SKZ](https://user-images.githubusercontent.com/102715509/161385371-9adfe489-b654-4ee8-9b04-c7529c4b5a5d.jpg)
-
-**Stray Kids (Korean: 스트레이 키즈; RR: Seuteurei kijeu; often abbreviated as SKZ) is a South Korean boy band formed by JYP Entertainment through the 2017 reality show of the same name. The group is composed of eight members: Bang Chan, Lee Know, Changbin, Hyunjin, Han, Felix, Seungmin, and I.N. Originally a nine-piece group, member Woojin left due to undisclosed personal reasons in October 2019. Stray Kids released their pre-debut extended play (EP) Mixtape in January 2018 and officially debuted on March 25 with the EP I Am Not.**
-
-### SPOTIFY: https://open.spotify.com/artist/2dIgFjalVxs4ThymZ67YCE
-
-### YOUTUBE: https://www.youtube.com/c/StrayKids
-
-### INSTAGRAM: https://www.instagram.com/realstraykids/?hl=en
-
-### TWITTER: https://twitter.com/Stray_Kids?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor
-
-### TIKTOK: https://www.tiktok.com/@jypestraykids?lang=en
+![e04848df-1ed2-4afb-bccf-2f8842dd60db](https://user-images.githubusercontent.com/102715509/161388611-5d66b4df-5267-42f3-aa1e-2fa96113c6c5.jpg)
 
 
-# TOMORROW X TOGETHER (TXT)
+## **JUNGWON**
 
-![txt](https://user-images.githubusercontent.com/102715509/161385463-c3f54967-4159-4c02-a9a1-5a63a53d83ea.jpg)
-
-TXT (투모로우바이투게더), also known as TOMORROW X TOGETHER, is a 5-member boy group formed by Big Hit Music (part of HYBE Labels). The group consists of: Yeonjun, Soobin, Beomgyu, Taehyun and Huening Kai. They debuted on March 4th, 2019 with their first mini-album 'The Dream Chapter: STAR'.
-
-### SPOTIFY: https://open.spotify.com/artist/0ghlgldX5Dd6720Q3qFyQB
-
-### YOUTUBE: https://www.youtube.com/c/TXT_bighit
-
-### INSTAGRAM: https://www.instagram.com/txt_bighit/
-
-### TWITTER: https://twitter.com/TXT_bighit
-
-### TIKTOK: https://www.tiktok.com/@txt.bighitent?lang=en
-
-# SEVENTEEN
-
-![SEVENTEEN](https://user-images.githubusercontent.com/102715509/161385768-c16b10f7-c645-4493-a7cf-158d6b991257.jpg)
-
-**SEVENTEEN (세븐틴) is a 13-member boy group under Pledis Entertainment. They officially debuted on May 26, 2015 with the mini album 17 Carat. The group is made up of three units: hip-hop, vocal, and performance.**
-
-### SPOTIFY: https://open.spotify.com/artist/7nqOGRxlXj7N2JYbgNEjYH?si=MUMw2H3pRL-QcYr9EY6OoA
-
-### YOUTUBE: https://www.youtube.com/user/pledis17
-
-### INSTAGRAM: https://www.instagram.com/saythename_17/
-
-### TWITTER: https://twitter.com/pledis_17?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor
-
-### TIKTOK: https://www.tiktok.com/@seventeen17_official?lang=en
+![8d4eac8e-e058-49d6-a30b-ed087c3fb351](https://user-images.githubusercontent.com/102715509/161388615-86b2863f-714a-40fc-9db3-a261b0429e58.jpg) ![b00926c3-fbfc-4a44-a5d9-120a54353329](https://user-images.githubusercontent.com/102715509/161388616-ff78d55f-f83d-4b92-b8cc-4ac5b84aa856.jpg)  ![295a2305-5b27-4056-97f7-768fae5b8df2](https://user-images.githubusercontent.com/102715509/161388620-1e54bf1d-8da3-487a-bdd2-cf0816b2138a.jpg) ![b184454b-13c6-46af-81ca-7123649cdfa3](https://user-images.githubusercontent.com/102715509/161388622-b82a1ffa-d43c-4b81-b1d3-1fceec1434c8.jpg)
 
 
-#### Besides listening to their songs, I also watch anime.
-#### You may watch it too. It's 100% recommended.
-#### some of them are still ongoing but you can read the manga
+## **HEESEUNG**
 
-**1. HAIKYUU**
-**2. BOKU NO HERO ACADEMIA**
-**3. ATTACK ON TITAN**
-**4. DEMON SLAYER**
-**5. FREE**
-**6. TOKYO REVENGERS**
-**7. YOUR NAME (MOVIE)**
-**8. YURI ON ICE**
-**9. NEVER PROMISE LAND**
-**10. YOUR LIE IN APRIL**
-**11. RE-MAIN**
-**12. HORIMIYA**
-**13. BAKUTEN**
-**14. WATAKOI**
-**15. JUJUTSU KAISEN**
-**16. GAKUEN BABYSISTER**
-**17. GIVEN**
-**18. KAKEGURUI**
-**19. SASAKI TO MIYANO**
-**20. KOI TO YOBU NI WA KIMOCHI WARUI**
-**21. KOROSHI AI**
-**22. SONO BISQUE DOLL WA KOI WO SURU**
-**23. FRUIT BASKET**
-**24. SUMMER GHOST**
-**25. HELLO WORLD (MOVIE)**
-**26. AO HARU RIDE**
+![7f173b04-1c93-496d-8aa1-d1a4ec5ca7f1](https://user-images.githubusercontent.com/102715509/161388654-f4371131-5bfc-493e-b062-7e0dc637239b.jpg) ![d983327a-238d-48f0-881c-452cd7cd1a93](https://user-images.githubusercontent.com/102715509/161388651-50aa426a-3e42-4de3-909a-56ada8dd4267.jpg) ![30a0cec0-ce9a-4f9a-9f0c-11493d040b17](https://user-images.githubusercontent.com/102715509/161388652-319cc05c-62e5-4ccb-9ed3-a22105192193.jpg) ![e30e5728-616e-48c2-a9d7-4d36d20a0810](https://user-images.githubusercontent.com/102715509/161388653-81359f6b-fca4-4363-98da-8659a27f7eee.jpg)
 
-IF YOU WANT TO WATCH THEM WATCH THEM AT NETFLIX OR https://gogoanime.fi/
+
+
+## **JAY**
+
+![269976700_225165369770550_3770246608828816625_n](https://user-images.githubusercontent.com/102715509/161389205-85d72b8d-214e-4b4a-ac65-7b22b34356d5.jpg)
+![270013971_314377997244712_7783727084474540180_n](https://user-images.githubusercontent.com/102715509/161389208-7a01c096-42d7-4207-9a97-9790558428ae.jpg)
+![270279055_442282194060205_587089042178584450_n](https://user-images.githubusercontent.com/102715509/161389209-d77698df-4059-4cb0-b12b-b28cf2dd500b.jpg)
+![270189937_401650011646485_2920720765207372801_n](https://user-images.githubusercontent.com/102715509/161389211-060df51c-d69d-4342-baf9-d8a883945c6b.jpg)
+
+
+## **JAKE**
+
+![5a6741d9-a780-4643-abb4-18820c785da0](https://user-images.githubusercontent.com/102715509/161388662-9230244f-9e6e-4bdb-a04f-67f88dc5746b.jpg) ![c7dc6fda-196d-49a1-9e41-813ae6e65e4a](https://user-images.githubusercontent.com/102715509/161388656-f8ac88d6-c9ad-472b-81d7-22b2e056ed24.jpg) 
+![9698e305-f715-41bf-b38a-9013403631d3](https://user-images.githubusercontent.com/102715509/161388658-3adcc974-fcec-4e05-95f9-0c1619ee128a.jpg) ![caf4fd92-8275-495e-a024-cd6a481ebeae](https://user-images.githubusercontent.com/102715509/161388660-27a8b584-6bd4-447f-ab12-b978a65ddc40.jpg)
+
+
+
+
+## **SUNGHOON**
+![a678d172-0f32-492e-a384-83a104f96ebc](https://user-images.githubusercontent.com/102715509/161388618-1a5ee783-acef-43c7-89a1-c30beb4ebc01.jpg) ![a982a6dd-57c4-4e1a-8d1d-3c1dc74e7a93](https://user-images.githubusercontent.com/102715509/161388619-25e107a9-59f0-4b12-a675-533d61d98dca.jpg)  
+![7e88a9e1-b30e-4c12-b638-b63bade913ee](https://user-images.githubusercontent.com/102715509/161388640-74dcccac-2814-4b41-90b0-807c248bd26a.jpg) ![57c1fcc2-50d1-4945-9336-05dfc2b109c1](https://user-images.githubusercontent.com/102715509/161388642-cfdc8f7c-7e94-4815-9535-e800d094efca.jpg)
+
+
+
+## **SUNOO**
+
+![ff7c373c-1cbc-4d50-ab02-5e30014b7300](https://user-images.githubusercontent.com/102715509/161388649-641539af-87e8-4a99-a575-d55f60e07e7f.jpg) 
+![991e72c5-26d0-478e-a3e5-b12605b35524](https://user-images.githubusercontent.com/102715509/161388650-3fba4b81-673f-40ee-9664-8db82afa1cd6.jpg)
+![3f991c56-150a-4d6d-80c3-a6fa48b7f99d](https://user-images.githubusercontent.com/102715509/161388648-cf5c3003-04f6-4777-b72f-6ae9ac42a465.jpg)
+![8949b0b1-e625-4ce4-996b-587d94edc01e](https://user-images.githubusercontent.com/102715509/161388643-efc92684-9975-4e75-96ca-c4951de3ea2b.jpg)
+
+
+## **NI-KI**
+![676ddd83-f667-423e-9e38-0dce2d692110](https://user-images.githubusercontent.com/102715509/161388636-2c2ae5ef-9da2-4f85-888b-7fbda5a263be.jpg)![a93649a2-a632-4d74-8995-f775cdd040f1](https://user-images.githubusercontent.com/102715509/161388666-d108b93a-66cb-4524-8206-b1111c695795.jpg) ![b1a667b6-df39-4ebf-b5be-151782fdecf4](https://user-images.githubusercontent.com/102715509/161388664-e51f1d1e-510f-43de-8772-461120495b08.jpg) ![643a383a-4008-471b-858d-cb642e749b18](https://user-images.githubusercontent.com/102715509/161388663-cca0d55b-8682-4b5a-9515-03c8d469d3f7.jpg)
+
+
+
+![555ed011-6812-4b82-bab1-00cfd4b3d544](https://user-images.githubusercontent.com/102715509/161389486-7eb69e20-0da8-4532-9e8f-8d861f1aacaf.jpg)
+![a32039c7-2bb0-46b8-b88c-bad3ac3b8856](https://user-images.githubusercontent.com/102715509/161389490-c4a20cf5-68b1-4af6-b500-8ebd280b933d.jpg)
+![2a5866ba-d88f-4b5b-9003-1378c68baf6d](https://user-images.githubusercontent.com/102715509/161389492-3fca5e17-20e0-466a-80e9-d7e78586ca46.jpg)
+![3e3b19cf-818e-4410-99c7-f40f60d8657e](https://user-images.githubusercontent.com/102715509/161389495-3b4629ed-c27c-4dce-a840-bbdad09c35b5.jpg)
+![09d23d52-0605-433f-aa3a-49ca7d27e44f](https://user-images.githubusercontent.com/102715509/161389498-5710779f-c64a-4596-b44f-63592e999c41.jpg)
+![12d2ce76-df6f-4daa-9b52-337158a0eb69](https://user-images.githubusercontent.com/102715509/161389499-22a3da5b-a233-43bb-bfbc-16d0c5c05d44.jpg)
+![b7a80bf2-1772-4a67-9f08-54903e399aa5](https://user-images.githubusercontent.com/102715509/161389506-a1329820-e126-4abf-b54f-11f66f33a8f6.jpg)
+![f512b758-0d5a-4993-b41e-d8b1e4529a6c](https://user-images.githubusercontent.com/102715509/161389509-7f8e9d8b-c65d-4aaf-b98d-6e8c09a6621b.jpg)
+![b3383df4-f3e2-4a6d-ab22-f2333e7bd895](https://user-images.githubusercontent.com/102715509/161389510-c6a3d8b3-e070-435a-9f65-0549e19a4d21.jpg)
+![75af599c-9cde-40c4-b9e2-12f39e33b4ba](https://user-images.githubusercontent.com/102715509/161389511-9c1b118b-2a5e-4124-a01e-913c9a7758f8.jpg)
+![32ccc3b2-7a85-40c9-b057-6fe885c8a31f](https://user-images.githubusercontent.com/102715509/161389513-52ae1374-1b91-461f-a13b-049e4e645784.jpg)
+
