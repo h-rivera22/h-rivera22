@@ -1,7 +1,11 @@
 # HK_ROOM 
 
+## NAME: HANNAH KELLY R. RIVERA 
 
-## STUDY
+## AGE: 15
+
+
+### STUDY
 
 **SCHEDULE**
 
@@ -11,7 +15,7 @@ I may be a clever student when it comes to my studies, but I never forget about 
 
 ### PLAYLIST
 
- [!link](https://open.spotify.com/playlist/5g9COjrjPZD95bXvbr4dy3)
+https://open.spotify.com/playlist/5g9COjrjPZD95bXvbr4dy3
 
 
 
@@ -182,34 +186,35 @@ TXT (투모로우바이투게더), also known as TOMORROW X TOGETHER, is a 5-mem
 ### TIKTOK: https://www.tiktok.com/@seventeen17_official?lang=en
 
 
-## Besides listening to their songs, I also watch anime.
-You may watch it too. It's 100% recommended.
-some of them are still ongoing but you can read the manga
+#### Besides listening to their songs, I also watch anime.
+#### You may watch it too. It's 100% recommended.
+#### some of them are still ongoing but you can read the manga
 
-1. HAIKYUU
-2. BOKU NO HERO ACADEMIA
-3. ATTACK ON TITAN
-4. DEMON SLAYER
-5. FREE
-6. TOKYO REVENGERS
-7. YOUR NAME (MOVIE)
-8. YURI ON ICE
-9. NEVER PROMISE LAND
-10. YOUR LIE IN APRIL
-11. RE-MAIN
-12. HORIMIYA
-13. BAKUTEN
-14. WATAKOI
-15. JUJUTSU KAISEN
-16. GAKUEN BABYSISTER
-17. GIVEN
-18. KAKEGURUI
-19. SASAKI TO MIYANO
-20. KOI TO YOBU NI WA KIMOCHI WARUI
-21. KOROSHI AI
-22. SONO BISQUE DOLL WA KOI WO SURU
-23. FRUIT BASKET
-24. SUMMER GHOST
-25. HELLO WORLD (MOVIE)
-26. AO HARU RIDE
+**1. HAIKYUU**
+**2. BOKU NO HERO ACADEMIA**
+**3. ATTACK ON TITAN**
+**4. DEMON SLAYER**
+**5. FREE**
+**6. TOKYO REVENGERS**
+**7. YOUR NAME (MOVIE)**
+**8. YURI ON ICE**
+**9. NEVER PROMISE LAND**
+**10. YOUR LIE IN APRIL**
+**11. RE-MAIN**
+**12. HORIMIYA**
+**13. BAKUTEN**
+**14. WATAKOI**
+**15. JUJUTSU KAISEN**
+**16. GAKUEN BABYSISTER**
+**17. GIVEN**
+**18. KAKEGURUI**
+**19. SASAKI TO MIYANO**
+**20. KOI TO YOBU NI WA KIMOCHI WARUI**
+**21. KOROSHI AI**
+**22. SONO BISQUE DOLL WA KOI WO SURU**
+**23. FRUIT BASKET**
+**24. SUMMER GHOST**
+**25. HELLO WORLD (MOVIE)**
+**26. AO HARU RIDE**
 
+IF YOU WANT TO WATCH THEM WATCH THEM AT NETFLIX OR https://gogoanime.fi/
