@@ -212,4 +212,4 @@ some of them are still ongoing but you can read the manga
 24. SUMMER GHOST
 25. HELLO WORLD (MOVIE)
 26. AO HARU RIDE
-27. 
+
