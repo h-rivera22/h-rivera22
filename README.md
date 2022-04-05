@@ -1,6 +1,6 @@
 # ENHYPEN
 
-"1-2! CONNECT! HELLO! WE ARE ENHYPEN"
+## "1-2! CONNECT! HELLO! WE ARE ENHYPEN"
 
 ![Enhypen](https://user-images.githubusercontent.com/102715509/161380761-8082f78d-87d2-46df-a7a5-169af0734730.jpg)
 
@@ -23,6 +23,10 @@
 ![download (28)](https://user-images.githubusercontent.com/102715509/161381187-2b1cea44-802d-4c2f-8822-599a2c5f65e7.jpg)
 
 ### **BORDER: DAY ONE**
+
+**ENHYPEN, K-first Pop's 'global fan-made group,' releases "BORDER: DAY ONE," the story of boys standing at the border between two worlds. As they take their first steps across the border between the past and the future, the lads, from trainees to artists, from individuals to team members, are happy about their survival but also anxious about their unknown future. The complicated emotions that the boys go through as they connect, learn, and develop together.
+
+The two graphic conceptions for this album, 'DAWN' and 'DUSK,' depict their great resolve to conquer this as they stand on the edge of the unknown. "Intro: Walk the Line," "Let Me In (20 CUBE)," "10 Months," "Flicker," and "Outro: Cross the Line" are the six tracks on the debut album, which cover a variety of topics that anyone can relate to: "Intro: Walk the Line," lead single "Given-Taken," "Let Me In (20 CUBE)," "10 Months," "Flicker," and "Outro: Cross the Line**
 
 ### **DEBUT SONG ALBUM**
 
@@ -48,6 +52,10 @@
 
 ### **BORDER:CARNIVAL**
 
+**With their 2nd Mini Album BORDER: CARNIVAL, your new K-Pop destination returns with "Drunk-Dazed," amongst a gorgeous carnival, ENHYPEN reveals their truest emotions facing the new world beyond the border. Following their premiere, the septet is welcomed into a new world of glamour and glam, evocative of a grand carnival. They are experiencing everything for the first time, and the rules of the game do not apply to them.
+
+In this strange atmosphere, where the world appears to be flipped upside down and boundaries are destroyed, awe and bewilderment coexist. Confusion, on the other hand, fades in an instant. The guys are lured to the heart of the carnival by the gazes and cheers of the crowd, enthralled by the celebratory mood. BORDER: CARNIVAL is a follow-up to the blockbuster boyband's first album BORDER: DAY ONE, and it reflects the act's shifting emotions via three graphic concepts: "UP," "HYPE," and "DOWN." "Intro: The Invitation," lead single "Drunk-Dazed," "FEVER," "Not For Sale," "Mixed Up," and "Outro": The Wormhole" are the six tracks on which ENHYPEN expresses their genuine feelings and connects with their generation.**
+
 #### TRACKLIST
 
 0:00-2:11= INTRO: THE INVITATION
@@ -67,6 +75,11 @@
 ![Enhypen_-_Dimension_Dilemma](https://user-images.githubusercontent.com/102715509/161381271-1838ffb4-943e-4eb0-84cc-dc7964113d94.jpg)
 
 ### **DIMENSION: DILEMMA**
+
+**ENHYPEN, your new K-pop destination, returns with their first studio album DIMENSION: DILEMMA. The record-breaking K-pop prodigies continue to tell their story, now faced with a new dilemma—the new world beyond the border turns out to be even more multidimensional and chaotic than the boys expected. Following the conclusion of their 'BORDER' series, which colorfully illustrated the complex, yet sincere emotions the members experienced before and after crossing the border of their debut, the record-breaking K-pop prodigies continue to tell their story, now faced with a new dilemma—the new world beyond the border turns They notice their aspirations for the first time and begin to doubt their identities after entering this multidimensional universe where their ideals begin to conflict.
+
+With their hands bound in their current predicament, the lads decide to do the only thing they can for the time being: run. The road ahead is murky, and the answers are unknown, but who knows? They could discover the answers along the way. They could even find someone who is similar to them. They'll keep moving forward until they succeed. The album's three visual concepts—SCYLLA, CHARYBDIS, and ODYSSEUS—each convey the members' upheaval of youth, the ensuing chaos and inner turmoil, and the various new desires they are confronted with in this new world through a total of eight tracks: "Intro: Whiteout", lead single "Tamed-Dashed", "Upper Side Dreamin'", "Just A Little Bit", "Go Big or Go Home", and “Blockbuster feat. YEONJUN of TOMORROW X TOGETHER”, “Attention, please!”, “Interlude: Question”.**
+
 
 #### **TRACKLIST**
 
@@ -90,6 +103,8 @@
 ![images (3)](https://user-images.githubusercontent.com/102715509/161381286-85870443-74c7-46e1-b487-6327adf928e9.jpg)
 
 ### **DIMENSION:ANWSER**
+
+**In DIMENSION: ANSWER, the septet begins to question society, which is characterized by competition, which continually encourages them to wake up, confront reality, and conform to the standard. They understand how chaotic the world is through the glasses of social media and refuse to accept what is described as the "right answer," demonstrating a willingness to focus on the present and discover solutions while enjoying life on their own terms. DIMENSION: ANSWER adds three more songs to the previous tracklist from DIMENSION: DILEMMA, including the lead single "Blessed-Cursed," "Polaroid Love," and "Outro: Day 2," rounding out ENHYPEN's newest 11-track album with a larger range of genres. Accepting what was provided to them and according to society's standards was simple.  and seemed like a “blessing.” Now that they've realized the ways of the world, this all rather feels like a “curse.” The album's lead single “Blessed-Cursed” is the band's declaration to the world—“I'll go my own way.”**
 
 #### **TRACKLIST**
 
@@ -121,7 +136,8 @@
 ![e04848df-1ed2-4afb-bccf-2f8842dd60db](https://user-images.githubusercontent.com/102715509/161388611-5d66b4df-5267-42f3-aa1e-2fa96113c6c5.jpg)
 
 
-## **JUNGWON**
+## **JUNGWON** 
+LEADRER
 
 ![8d4eac8e-e058-49d6-a30b-ed087c3fb351](https://user-images.githubusercontent.com/102715509/161388615-86b2863f-714a-40fc-9db3-a261b0429e58.jpg) ![b00926c3-fbfc-4a44-a5d9-120a54353329](https://user-images.githubusercontent.com/102715509/161388616-ff78d55f-f83d-4b92-b8cc-4ac5b84aa856.jpg)  ![295a2305-5b27-4056-97f7-768fae5b8df2](https://user-images.githubusercontent.com/102715509/161388620-1e54bf1d-8da3-487a-bdd2-cf0816b2138a.jpg) ![b184454b-13c6-46af-81ca-7123649cdfa3](https://user-images.githubusercontent.com/102715509/161388622-b82a1ffa-d43c-4b81-b1d3-1fceec1434c8.jpg)
 
